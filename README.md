@@ -2,7 +2,7 @@
 =
 纯python协议<br>
 =
-联系：TG：guerbye1<br>
+联系：TG：@AA1985yi<br>
 =
 <img width="342" height="189" alt="533b31ebd80d4bfc60b3e70d659cf69" src="https://github.com/user-attachments/assets/9a17f570-dd60-4265-a624-949df5aade4e" />
 <img width="1616" height="761" alt="27ce1e158e4ea6f35e01c719983f9d0" src="https://github.com/user-attachments/assets/1aef8ba9-0ce9-483f-a173-ab5aaf822d95" />
